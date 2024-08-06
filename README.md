@@ -6,7 +6,7 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 nataly.bonatto@escola.pr.gov.br
-@natalyeduardabonatto
+
 
 
 
